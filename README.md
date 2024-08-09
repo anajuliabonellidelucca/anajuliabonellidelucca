@@ -2,7 +2,8 @@
 - 👀 Estou no primeiro ano do ensino medio
 - 🌱 Cafelândia-Pr
 - 💞️ 14 Anos 
-![Uploading image.png…]()
+
+![image](https://github.com/user-attachments/assets/2123de0d-df00-45a9-ac80-4e7b1c08955a)
 
 <!---
 anajuliabonellidelucca/anajuliabonellidelucca is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
