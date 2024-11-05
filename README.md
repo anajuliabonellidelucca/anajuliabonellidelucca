@@ -1,7 +1,7 @@
 - 👋 Ola, eu sou a @anajuliabonellidelucca
 - 👀 Estou no primeiro ano do ensino medio
 - 🌱 Cafelândia-Pr
-- 💞️ 14 Anos 
+- 💞️ 15 Anos 
 
 ![image](https://github.com/user-attachments/assets/2123de0d-df00-45a9-ac80-4e7b1c08955a)
 
